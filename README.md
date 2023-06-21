@@ -1,0 +1,1 @@
+Uganda has got several dishes to offer due to its vast number of tribes and so many have have got their different dish types. Here i present to you a few recipe to follow to make some local foods especially for the Luo community in Northern Uganda.
